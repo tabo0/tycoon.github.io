@@ -1,0 +1,1 @@
+# tycoon.github.io
